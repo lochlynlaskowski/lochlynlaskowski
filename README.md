@@ -13,4 +13,4 @@
 
 
 
-    📫 How to reach me: <a href="mailto:lochlyn.laskowski@gmail.com">Send Me an Email</a>
+- 📫 How to reach me: <a href="mailto:lochlyn.laskowski@gmail.com">Send Me an Email</a>
