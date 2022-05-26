@@ -9,7 +9,7 @@
 - 🌱 Prior education: B.B.A. Cybersecurity from UTSA
 - 🤔 I’m interested in how data drives decision making.
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun facts: I love to be outside.⛺  I'm trying to read more.📚  I used to forecast weather for the military.⛅
+- ⚡ Fun facts: I love to be outside.⛺  I'm trying to read more.📚  I previously forecasted the weather for the military.⛅
 
 
 
